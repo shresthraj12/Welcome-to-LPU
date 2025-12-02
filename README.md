@@ -1,1 +1,1 @@
-# Welcome-to-LPU-Family
+# Welcome to LPU Family
